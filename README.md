@@ -1,8 +1,8 @@
 ### Olá, Prazer eu sou o Lucas Gaion!!👋🥸
 
-- 🔞 Tenho 22 anos
+- 🔞 Tenho 23 anos
 - 📍 Moro Ibitinga/SP
-- 🔭 Altualmente trabalho na empressa @lindacasa
+- 🔭 Altualmente trabalho na empresa @fastcash
 - 🌱 Atualmente faço graduação de Sistemas de informação na @uniara
 - 📚 Membro da plataformas de cursos @alura
 - 📖💻 Apaixonado por leitura e por tecnologias
